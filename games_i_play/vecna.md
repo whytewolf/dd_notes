@@ -1,6 +1,7 @@
 # Vecna: even of ruin 11am
 
 _Items wanted by whats her name_
+
 [x] orb
 [ ] scimitar
 [x] ring
