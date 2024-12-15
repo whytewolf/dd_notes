@@ -1,5 +1,7 @@
 # Mad Mage - skullport start
 
+## Sun Dec 8th
+
 saved some traglobytes.
 got them moved through the gateway to there new home.
 have "Many more" to find
@@ -18,4 +20,16 @@ let him go.
 
 found some stuff in the ropper room.
 
-noel got a new follower.
+noel got a new follower
+
+## Sun Dec 15th
+
+Found a bunch of drow that wanted avandar dead as much as us.
+talked them into attacking with us. but they wanted us to take care of a
+"problem" first. killed an invisable troll and they started respecting us.
+
+setup a pincer attack pattern between them and the trogladytes.
+the drow want all the glory of the kill and the upper level in exchange we get free passage.
+the drow also promissed not to kill the troglodytes.
+
+we slept for the night then went on the offensive.
