@@ -1,6 +1,6 @@
 # tyranny of Dragons
 
-## wed dec 11
+## wed dec 11th
 
 - third trial: queries about our intentions.
   - sindri: nervous but feels we did good
@@ -15,3 +15,7 @@ self sacrafice is the way forward.
 
 kill the angel!
 kill the angel!
+
+## wed dec 18th
+
+still fighting the angel

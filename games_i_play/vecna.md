@@ -1,16 +1,6 @@
 # Vecna: even of ruin 11am
 
-Current
-_Items wanted by whats her name_
-
-[x] orb
-[x] scimitar
-[x] ring
-[x] copper tablets
-[x] blue silk
-[x] wand
-
-## Sat 7
+## Sat dec 7
 
 reg found knock spell scroll gave it to august
 dybic went through door three. whch lead to room with analation orbs.
@@ -23,7 +13,7 @@ marty silenced the area.
 john-luc rips the lute
 snake statues attacking
 
-## Sat 14
+## Sat dec 14
 
 talked the snake lady into giving the sword up.
 august cast find ovject and located the silk
@@ -32,3 +22,13 @@ faught aciderate that isn't acideract.
 severed his connection to acideract
 
 take the time to
+
+## Sat dec 21
+
+avernaus r us.
+
+red velvader location.
+
+fight the sasquach looking creature
+
+red velvader turned out to be a casino. and we are looking to spend money.
